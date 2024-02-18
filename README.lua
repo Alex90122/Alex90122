@@ -1,0 +1,4 @@
+- Hi I'm Alex90122
+- if you seeing this profile I'm new to github
+- I'm from turkey and I speak turkish and english
+- {see ya}
